@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @romerkian
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning 
+- 👀 I’m interested in ( ͡° ͜ʖ ͡°)
+- 🌱 I’m currently learning ( ͡ʘ ͜ʖ ͡ʘ)
 - 📫 romerkian@gmail.com
 
 <!---
